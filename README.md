@@ -1,1 +1,0 @@
-# natugy.github.io
